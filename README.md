@@ -66,11 +66,11 @@ If you have any questions about this Privacy Policy or how we handle your data, 
 
 ## Items for Sale
 
-### Item 1
+### Coming Soon
 **Description:** Sold Items will be added later.  
 **Price:** In Later Updates
 
-### Item 2
+### Coming Soon
 **Description:** Sold Items will be added later.  
 **Price:** In Later Updates
 
